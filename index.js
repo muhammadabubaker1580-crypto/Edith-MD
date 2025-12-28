@@ -1,13 +1,13 @@
 /*
-   ✦ ✦ ✦   E D I T H - M D   ✦ ✦ ✦
+   ✦ ✦ ✦  ABUBAKER-MD  ✦ ✦ ✦
 
 ─────────────────────────────────────────────────────────────
-📛 Project   : Edith-MD
-👤 Creator   : Bandaheali
+📛 Project   : ABUBAKER-MD
+👤 Creator   : ABUBAKER King 
 🌐 GitHub    : https://github.com/Bandah-E-Ali
-📱 Contact   : https://t.me/@bandaheali
-📢 Channel   : https://whatsapp.com/channel/0029VajGHyh2phHOH5zJl73P
-🗓 Release   : 24 • November • 2025 | 02:00 PM
+📱 Contact   : https://t.me/@bad_boy
+📢 Channel   : https://whatsapp.com/channel/0029Vb6kLeuCMY0EOXcInL0k
+🗓 Release   : 28 • December • 2025 | 08:00 AM
 ─────────────────────────────────────────────────────────────
 
 //   ⭐ PROUDLY MADE IN PAKISTAN ⭐
